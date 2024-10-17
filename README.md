@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lokesh-Varma73
 - 👀 I’m interested in Exploring new things
-- 🌱 I’m currently learning
+- 🌱 I’m currently learning edge cutting  technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:lokeshvarmayallamraju73@gmail.com
 - 😄 Pronouns: he/him
